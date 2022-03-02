@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mara05
+- 👀 I’m interested in Nosana project
+- 🌱 I’m currently learning 4 year about blockchain
+- 💞️ I’m looking to collaborate on Nosana
